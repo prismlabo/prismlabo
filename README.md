@@ -7,10 +7,14 @@ PRISMLABO is a video laboratory that conducts various experiments through light 
 Through video media, we propose new perspectives away from the existing fixed frame, and we plan interesting video projects through various experiments. <br>
 Based on the style and interpretation of each team member, we are going to produce a variety of videos. <br>
 <br>
-Team Member<br>
+SCHEDULE<br>
+ONLINE SCREENING 2020.12.7 - 12.21<br>
+ON & OFF SCREENIONG 2021. 3. 1 - 3. 7<br>
+<br>
+TEAM MEMBER<br>
 강유진, 우예인, 이채원, 김도연, 류현서, 한진희, 박지수, 안규미, 조수민 <br>
 <br>
-Professor<br>
+PROFESSOR<br>
 이화여자대학교 조형예술대학 디자인학부 유현정 교수<br>
 <br>
 2020prismlabo@gmail.com <br>
