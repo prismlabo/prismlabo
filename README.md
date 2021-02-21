@@ -2,13 +2,14 @@
 'PRISMLABO(프리즘라보)'는 빛과 소리를 통해 다양한 실험을 하는 영상 실험실입니다. <br>
 영상매체를 통해 기존의 고정된 틀에서 벗어난 새로운 시각을 제시하고, 다양한 실험을 통해 재미있는 영상 프로젝트를 기획합니다. <br>
 팀원 각각의 스타일과 해석을 바탕으로 다채로운 영상을 제작하고자 합니다. <br>
+<br>
 PRISMLABO is a video laboratory that conducts various experiments through light and sound. <br>
 Through video media, we propose new perspectives away from the existing fixed frame, and we plan interesting video projects through various experiments. <br>
 Based on the style and interpretation of each team member, we are going to produce a variety of videos. <br>
 <hr>
 <h2>SCHEDULE</h2>
-ON-LINE SCREENING 2020.12.7 - 12.21<br>
-ON & OFF-LINE SCREENING 2021. 3. 1 - 3. 7<br>
+ON-LINE SCREENING 2020.12.7 - 12.21 <br>
+ON & OFF-LINE SCREENING 2021. 3. 1 - 3. 7 <br>
 <hr>
 <h2>CREDIT</h2>
 TEAM MEMBER<br>
