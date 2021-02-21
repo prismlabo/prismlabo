@@ -13,6 +13,6 @@ Team Member<br>
 Professor<br>
 이화여자대학교 조형예술대학 디자인학부 유현정 교수<br>
 <br>
-03760 서울특별시 서대문구 이화여대길 52 이화여자대학교 <br>
-ⓒ 2020 PRISMLABO. All rights reserved. <br>
 2020prismlabo@gmail.com <br>
+03760 서울특별시 서대문구 이화여대길 52 이화여자대학교 조형예술관A동 201호<br>
+ⓒ 2020 PRISMLABO. All rights reserved. <br>
