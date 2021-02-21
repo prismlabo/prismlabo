@@ -8,7 +8,7 @@ Based on the style and interpretation of each team member, we are going to produ
 <hr>
 <h2>SCHEDULE</h2>
 ONLINE SCREENING 2020.12.7 - 12.21<br>
-ON & OFF SCREENIONG 2021. 3. 1 - 3. 7<br>
+ON & OFF SCREENING 2021. 3. 1 - 3. 7<br>
 <hr>
 <h2>CREDIT</h2>
 TEAM MEMBER<br>
