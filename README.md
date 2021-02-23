@@ -8,8 +8,8 @@ Through video media, we propose new perspectives away from the existing fixed fr
 Based on the style and interpretation of each team member, we are going to produce a variety of videos. <br>
 <hr>
 <h2>SCHEDULE</h2>
-ON-LINE SCREENING 2020.12.7 - 12.21 <br>
-ON & OFF-LINE SCREENING 2021. 3. 1 - 3. 7 <br>
+2020 ON-LINE SCREENING (2020.12.7 - 12.21) <br>
+2021 ON & OFF-LINE SCREENING (2021. 3. 1 - 3. 7) <br>
 <hr>
 <h2>CREDIT</h2>
 TEAM MEMBER<br>
